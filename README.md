@@ -1,1 +1,1 @@
-Tristan Morgan Onlinw Portfolio
+Tristan Morgan Online Portfolio
