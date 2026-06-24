@@ -1,1 +1,1 @@
-Tristan Morgan Online Portfolio
+![TristanJPMorgan](https://avatars.githubusercontent.com/u/TristanJPMorgan?v=4) Tristan Morgan Online Portfolio
